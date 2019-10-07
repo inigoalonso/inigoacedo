@@ -1,6 +1,9 @@
 ---
 layout: misc
-title: About
+id: 27
+title: Inicio
+date: 2017-01-02T21:36:04+02:00
+author: inigoacedo_55ovsm
 ---
 
-Millennial is a minimalist Jekyll theme. The purpose of this theme is to provide a simple, clean, content-focused publishing platform for your publication site or blog. You can find everything you need to get started under documentation. For more information on how to install and use this theme, check out [the documentation]({{ site.github.url }}{% post_url 2016-10-10-getting-started %}).
+¡Bienvenido al rincón de la música en vinilo! En esta página encontrarás curiosidades sobre música en general, sobre la caza y captura de discos de vinilo a través de distintos países y sobre el maravilloso mundo del coleccionismo de discos. Cuidado que esta mierda engancha...
