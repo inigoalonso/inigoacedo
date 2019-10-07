@@ -18,7 +18,7 @@ Este es un disco que me gusta mucho y no sólo por la música que está muy bien
 
 Resulta que estando mirando discos en la tienda donde me gasto el dinero de la universidad de mis futuros hijos, rebuscando en las cajas de nuevas incorporaciones,  me percato de que está sonando por los altavoces una música interesante.
 
-<img class="alignnone size-medium wp-image-112" src="https://inigoacedo.com/wp-content/uploads/2017/01/ScreenHunter_8-297x300.bmp" alt="" width="297" height="300" srcset="https://inigoacedo.com/wp-content/uploads/2017/01/ScreenHunter_8-297x300.bmp 297w, https://inigoacedo.com/wp-content/uploads/2017/01/ScreenHunter_8-100x100.bmp 100w, https://inigoacedo.com/wp-content/uploads/2017/01/ScreenHunter_8.bmp 428w" sizes="(max-width: 297px) 100vw, 297px" /> 
+<img class="alignnone size-medium wp-image-112" src="https://inigoacedo.com/wp-content/uploads/2017/01/ScreenHunter_8-297x300.jpg" alt="" width="297" height="300" srcset="https://inigoacedo.com/wp-content/uploads/2017/01/ScreenHunter_8-297x300.jpg 297w, https://inigoacedo.com/wp-content/uploads/2017/01/ScreenHunter_8-100x100.jpg 100w, https://inigoacedo.com/wp-content/uploads/2017/01/ScreenHunter_8.jpg 428w" sizes="(max-width: 297px) 100vw, 297px" /> 
 
 Cuando me acerco a la caja con mi captura (siempre acabo pillando algo…) le comento a Jon (un tipo con el que merece la pena hablar de música) que está muy bien lo que está pinchando y que no lo conozco.
 
@@ -26,7 +26,7 @@ Entonces es cuando me sonríe y me dice “pues date la vuelta porque es de ese 
 
 Ni corto ni perezoso le solté “pues si me lo firmas me lo llevo” y muy amablemente eso hizo (de una forma un tanto peculiar).
 
-[<img class="alignnone size-medium wp-image-223" src="https://inigoacedo.com/wp-content/uploads/2017/01/ScreenHunter_3-1-300x162.bmp" alt="" width="300" height="162" srcset="https://inigoacedo.com/wp-content/uploads/2017/01/ScreenHunter_3-1-300x162.bmp 300w, https://inigoacedo.com/wp-content/uploads/2017/01/ScreenHunter_3-1-768x416.bmp 768w, https://inigoacedo.com/wp-content/uploads/2017/01/ScreenHunter_3-1-1024x554.bmp 1024w, https://inigoacedo.com/wp-content/uploads/2017/01/ScreenHunter_3-1.bmp 1057w" sizes="(max-width: 300px) 100vw, 300px" />](https://inigoacedo.com/wp-content/uploads/2017/01/ScreenHunter_3-1.bmp)
+[<img class="alignnone size-medium wp-image-223" src="https://inigoacedo.com/wp-content/uploads/2017/01/ScreenHunter_3-1-300x162.jpg" alt="" width="300" height="162" srcset="https://inigoacedo.com/wp-content/uploads/2017/01/ScreenHunter_3-1-300x162.jpg 300w, https://inigoacedo.com/wp-content/uploads/2017/01/ScreenHunter_3-1-768x416.jpg 768w, https://inigoacedo.com/wp-content/uploads/2017/01/ScreenHunter_3-1-1024x554.jpg 1024w, https://inigoacedo.com/wp-content/uploads/2017/01/ScreenHunter_3-1.jpg 1057w" sizes="(max-width: 300px) 100vw, 300px" />](https://inigoacedo.com/wp-content/uploads/2017/01/ScreenHunter_3-1.jpg)
 
 Pero la historia  no acaba aquí.
 

@@ -27,7 +27,7 @@ Su tercer álbum, &#171;Un ramito de violetas&#187;, publicado en 1975, fue el m
 
 Como cosa curiosa comentar que la censura española le obligó a cambiar la letra de &#171;mi querida España&#187; en la estrofa que rezaba &#8211; _mi querida España, esta España mía esta España muerta &#8211; por nuestra. Pero Eva consiguió colar la letra original dentro de la contra portada del disco_
 
-[<img class="alignnone size-medium wp-image-174" src="https://inigoacedo.com/wp-content/uploads/2017/05/ScreenHunter_1-156x300.bmp" alt="" width="156" height="300" srcset="https://inigoacedo.com/wp-content/uploads/2017/05/ScreenHunter_1-156x300.bmp 156w, https://inigoacedo.com/wp-content/uploads/2017/05/ScreenHunter_1.bmp 230w" sizes="(max-width: 156px) 100vw, 156px" />](https://inigoacedo.com/wp-content/uploads/2017/05/ScreenHunter_1.bmp)
+[<img class="alignnone size-medium wp-image-174" src="https://inigoacedo.com/wp-content/uploads/2017/05/ScreenHunter_1-156x300.jpg" alt="" width="156" height="300" srcset="https://inigoacedo.com/wp-content/uploads/2017/05/ScreenHunter_1-156x300.jpg 156w, https://inigoacedo.com/wp-content/uploads/2017/05/ScreenHunter_1.jpg 230w" sizes="(max-width: 156px) 100vw, 156px" />](https://inigoacedo.com/wp-content/uploads/2017/05/ScreenHunter_1.jpg)
 
 En 1975, Televisión Española decidió que representara a España en el Festival de la OTI a lo que la artista aceptó a regañadientes.
 
@@ -39,6 +39,6 @@ Personalmente no soy muy fan de la música en castellano (aunque hay excepcione
 
 No recuerdo cómo llegué a su auto biografía &#171;Equilibrista&#187;, un libro muy recomendable.
 
-[<img class="alignnone size-medium wp-image-175" src="https://inigoacedo.com/wp-content/uploads/2017/05/ScreenHunter_2-218x300.bmp" alt="" width="218" height="300" srcset="https://inigoacedo.com/wp-content/uploads/2017/05/ScreenHunter_2-218x300.bmp 218w, https://inigoacedo.com/wp-content/uploads/2017/05/ScreenHunter_2.bmp 351w" sizes="(max-width: 218px) 100vw, 218px" />](https://inigoacedo.com/wp-content/uploads/2017/05/ScreenHunter_2.bmp)
+[<img class="alignnone size-medium wp-image-175" src="https://inigoacedo.com/wp-content/uploads/2017/05/ScreenHunter_2-218x300.jpg" alt="" width="218" height="300" srcset="https://inigoacedo.com/wp-content/uploads/2017/05/ScreenHunter_2-218x300.jpg 218w, https://inigoacedo.com/wp-content/uploads/2017/05/ScreenHunter_2.jpg 351w" sizes="(max-width: 218px) 100vw, 218px" />](https://inigoacedo.com/wp-content/uploads/2017/05/ScreenHunter_2.jpg)
 
 A través de él decidí acercarme a su música descubriendo unas letras  reivindicativas que sin ser Joan Manuel Serrat estaban compuestas por una Joan Baez española&#8230;

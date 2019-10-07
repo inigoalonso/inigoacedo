@@ -7,7 +7,7 @@ excerpt: Steven Gene Wold más conocido como “Seasick Steve” es un bluesman 
 layout: post
 guid: https://inigoacedo.com/?p=129
 permalink: /2017/01/05/seasick-steve-un-blues-embrujado/
-image: /wp-content/uploads/2017/01/ScreenHunter_2.bmp
+image: /wp-content/uploads/2017/01/ScreenHunter_2.jpg
 categories:
   - Artículos
 ---

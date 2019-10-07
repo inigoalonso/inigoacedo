@@ -6,7 +6,7 @@ author: Iñigo Acedo
 layout: post
 guid: https://inigoacedo.com/?p=214
 permalink: /2017/07/30/general-banda-del-ano-hungara-en-1973-y-1975/
-image: /wp-content/uploads/2017/07/ScreenHunter_1.bmp
+image: /wp-content/uploads/2017/07/ScreenHunter_1.jpg
 categories:
   - Artículos
 ---
@@ -16,7 +16,7 @@ General fue una banda de rock húngaro fundada en 1972 en Budapest. El repertori
 
 Siendo en sus inicio un trío de voces femenino, su carrera se catapultó como banda tras ganar el primer premio en un concurso de talentos de la televisión húngara, lo que les llevó a dar 200 conciertos y más de 20 apariciones en programas de televisión  seguido de apariciones en la RDA, Checoslovaquia, la República Popular de Polonia, Yugoslavia, Austria, Bélgica y los Países Bajos.
 
-[<img class="alignnone size-medium wp-image-218" src="https://inigoacedo.com/wp-content/uploads/2017/07/ScreenHunter_3-300x180.bmp" alt="" width="300" height="180" srcset="https://inigoacedo.com/wp-content/uploads/2017/07/ScreenHunter_3-300x180.bmp 300w, https://inigoacedo.com/wp-content/uploads/2017/07/ScreenHunter_3-768x461.bmp 768w, https://inigoacedo.com/wp-content/uploads/2017/07/ScreenHunter_3-1024x615.bmp 1024w, https://inigoacedo.com/wp-content/uploads/2017/07/ScreenHunter_3.bmp 1094w" sizes="(max-width: 300px) 100vw, 300px" />](https://inigoacedo.com/wp-content/uploads/2017/07/ScreenHunter_3.bmp)
+[<img class="alignnone size-medium wp-image-218" src="https://inigoacedo.com/wp-content/uploads/2017/07/ScreenHunter_3-300x180.jpg" alt="" width="300" height="180" srcset="https://inigoacedo.com/wp-content/uploads/2017/07/ScreenHunter_3-300x180.jpg 300w, https://inigoacedo.com/wp-content/uploads/2017/07/ScreenHunter_3-768x461.jpg 768w, https://inigoacedo.com/wp-content/uploads/2017/07/ScreenHunter_3-1024x615.jpg 1024w, https://inigoacedo.com/wp-content/uploads/2017/07/ScreenHunter_3.jpg 1094w" sizes="(max-width: 300px) 100vw, 300px" />](https://inigoacedo.com/wp-content/uploads/2017/07/ScreenHunter_3.jpg)
 
 Este disco lo rescaté de una caja de cartón en la zona chunga de Poznan por menos de un euro al cambio.
 

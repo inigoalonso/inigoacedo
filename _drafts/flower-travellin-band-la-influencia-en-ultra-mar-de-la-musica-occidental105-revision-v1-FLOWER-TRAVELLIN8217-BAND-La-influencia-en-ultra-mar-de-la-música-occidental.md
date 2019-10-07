@@ -25,7 +25,7 @@ Otro atractivo de este álbum editado por CBS fue la carátula, que consistía e
 
 Este disco lo encontré en una tienda de Osaka tras una conversación en mi “japo-inglés’ en la que le pedí al tipo que me atendía que me recomendase grupos de la época y del tipo de música que andaba buscando.
 
-[<img class="alignnone size-medium wp-image-110" src="https://inigoacedo.com/wp-content/uploads/2017/01/ScreenHunter_7-300x226.bmp" alt="" width="300" height="226" srcset="https://inigoacedo.com/wp-content/uploads/2017/01/ScreenHunter_7-300x226.bmp 300w, https://inigoacedo.com/wp-content/uploads/2017/01/ScreenHunter_7.bmp 572w" sizes="(max-width: 300px) 100vw, 300px" />](https://inigoacedo.com/wp-content/uploads/2017/01/ScreenHunter_7.bmp)
+[<img class="alignnone size-medium wp-image-110" src="https://inigoacedo.com/wp-content/uploads/2017/01/ScreenHunter_7-300x226.jpg" alt="" width="300" height="226" srcset="https://inigoacedo.com/wp-content/uploads/2017/01/ScreenHunter_7-300x226.jpg 300w, https://inigoacedo.com/wp-content/uploads/2017/01/ScreenHunter_7.jpg 572w" sizes="(max-width: 300px) 100vw, 300px" />](https://inigoacedo.com/wp-content/uploads/2017/01/ScreenHunter_7.jpg)
 
 Japón en general es un país perfecto para la pesca del Vinilo, se encuentran cosas muy curiosas y muy bien tratadas (carne muchos de ellos por supuesto de futuros artículos).
 
@@ -33,11 +33,11 @@ En 1971, tras el lanzamiento en 1970 de su segundo álbum  “Anywhere&#187; qu
 
 Para conseguir este disco sin embargo, tuve que esperar a encontrarlo en uno de mis puntos de venta habituales, el cual tiene un catálogo de rock psicodélico de importación muy amplio.
 
-[<img class="alignnone size-medium wp-image-108" src="https://inigoacedo.com/wp-content/uploads/2017/01/ScreenHunter_5-300x121.bmp" alt="" width="300" height="121" srcset="https://inigoacedo.com/wp-content/uploads/2017/01/ScreenHunter_5-300x121.bmp 300w, https://inigoacedo.com/wp-content/uploads/2017/01/ScreenHunter_5.bmp 372w" sizes="(max-width: 300px) 100vw, 300px" />](https://inigoacedo.com/wp-content/uploads/2017/01/ScreenHunter_5.bmp)
+[<img class="alignnone size-medium wp-image-108" src="https://inigoacedo.com/wp-content/uploads/2017/01/ScreenHunter_5-300x121.jpg" alt="" width="300" height="121" srcset="https://inigoacedo.com/wp-content/uploads/2017/01/ScreenHunter_5-300x121.jpg 300w, https://inigoacedo.com/wp-content/uploads/2017/01/ScreenHunter_5.jpg 372w" sizes="(max-width: 300px) 100vw, 300px" />](https://inigoacedo.com/wp-content/uploads/2017/01/ScreenHunter_5.jpg)
 
 Una cosa curiosa del álbum &#171;Satori&#187; es que son cinco temas homónimos, a lo largo de sus casi 33 minutos de duración.
 
-[<img class="alignnone size-medium wp-image-225" src="https://inigoacedo.com/wp-content/uploads/2017/01/ScreenHunter_4-1-269x300.bmp" alt="" width="269" height="300" srcset="https://inigoacedo.com/wp-content/uploads/2017/01/ScreenHunter_4-1-269x300.bmp 269w, https://inigoacedo.com/wp-content/uploads/2017/01/ScreenHunter_4-1.bmp 488w" sizes="(max-width: 269px) 100vw, 269px" />](https://inigoacedo.com/wp-content/uploads/2017/01/ScreenHunter_4-1.bmp)
+[<img class="alignnone size-medium wp-image-225" src="https://inigoacedo.com/wp-content/uploads/2017/01/ScreenHunter_4-1-269x300.jpg" alt="" width="269" height="300" srcset="https://inigoacedo.com/wp-content/uploads/2017/01/ScreenHunter_4-1-269x300.jpg 269w, https://inigoacedo.com/wp-content/uploads/2017/01/ScreenHunter_4-1.jpg 488w" sizes="(max-width: 269px) 100vw, 269px" />](https://inigoacedo.com/wp-content/uploads/2017/01/ScreenHunter_4-1.jpg)
 
 &nbsp;
 

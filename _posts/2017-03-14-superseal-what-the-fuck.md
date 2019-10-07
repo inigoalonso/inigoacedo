@@ -7,7 +7,7 @@ excerpt: 'Superseal es un disco peculiar perfecto para aficionados al skratching
 layout: post
 guid: https://inigoacedo.com/?p=140
 permalink: /2017/03/14/superseal-what-the-fuck/
-image: /wp-content/uploads/2017/03/ScreenHunter_2.bmp
+image: /wp-content/uploads/2017/03/ScreenHunter_2.jpg
 categories:
   - Artículos
 ---
@@ -21,6 +21,6 @@ Para el que no lo sepa comentar que el skratching es lo que se hace cuando se pa
 
 El aspecto del cover, como podéis comprobar, es bastante curioso y es lo que me pegó al ojo mientras andaba rebuscando entre cajas y cajas de cartón en una tienda del uptown de Nueva york, muy cerquita del famoso hotel Dakota (lugar donde residía y fue asesinado John Lennon).
 
-[<img class="alignnone size-medium wp-image-141" src="https://inigoacedo.com/wp-content/uploads/2017/03/ScreenHunter_1-300x282.bmp" alt="" width="300" height="282" srcset="https://inigoacedo.com/wp-content/uploads/2017/03/ScreenHunter_1-300x282.bmp 300w, https://inigoacedo.com/wp-content/uploads/2017/03/ScreenHunter_1.bmp 631w" sizes="(max-width: 300px) 100vw, 300px" />](https://inigoacedo.com/wp-content/uploads/2017/03/ScreenHunter_1.bmp)
+[<img class="alignnone size-medium wp-image-141" src="https://inigoacedo.com/wp-content/uploads/2017/03/ScreenHunter_1-300x282.jpg" alt="" width="300" height="282" srcset="https://inigoacedo.com/wp-content/uploads/2017/03/ScreenHunter_1-300x282.jpg 300w, https://inigoacedo.com/wp-content/uploads/2017/03/ScreenHunter_1.jpg 631w" sizes="(max-width: 300px) 100vw, 300px" />](https://inigoacedo.com/wp-content/uploads/2017/03/ScreenHunter_1.jpg)
 
 Este disco fue el típico flechazo que tiene todo coleccionista que al tener una portada así en la mano piensa What the fuck?!!! y que acaba siguiendo el consejo de una foca rapera _Buy dis anda stick it upa you assa!_.

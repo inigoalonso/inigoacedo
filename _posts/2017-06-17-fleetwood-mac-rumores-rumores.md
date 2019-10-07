@@ -7,7 +7,7 @@ excerpt: Fleetwood Mac es una banda cuyo estilo musical es difícil de cataloga
 layout: post
 guid: https://inigoacedo.com/?p=209
 permalink: /2017/06/17/fleetwood-mac-rumores-rumores/
-image: /wp-content/uploads/2017/06/ScreenHunter_4.bmp
+image: /wp-content/uploads/2017/06/ScreenHunter_4.jpg
 categories:
   - Artículos
 ---

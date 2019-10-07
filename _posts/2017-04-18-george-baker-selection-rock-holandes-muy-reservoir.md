@@ -21,7 +21,7 @@ Como muchas de las ediciones holandesas de mi colección, este disco lo saqué d
 
 Un par de veces al mes Charly recibe un cajón &#171;sorpresa&#187; de un gitano holandés con varias cosas interesantes de donde se pueden seleccionar muchos discos curiosos.
 
-[<img class="alignnone size-full wp-image-158" src="https://inigoacedo.com/wp-content/uploads/2017/04/ScreenHunter_1.bmp" alt="" width="152" height="150" srcset="https://inigoacedo.com/wp-content/uploads/2017/04/ScreenHunter_1.bmp 152w, https://inigoacedo.com/wp-content/uploads/2017/04/ScreenHunter_1-100x100.bmp 100w" sizes="(max-width: 152px) 100vw, 152px" />](https://inigoacedo.com/wp-content/uploads/2017/04/ScreenHunter_1.bmp)
+[<img class="alignnone size-full wp-image-158" src="https://inigoacedo.com/wp-content/uploads/2017/04/ScreenHunter_1.jpg" alt="" width="152" height="150" srcset="https://inigoacedo.com/wp-content/uploads/2017/04/ScreenHunter_1.jpg 152w, https://inigoacedo.com/wp-content/uploads/2017/04/ScreenHunter_1-100x100.jpg 100w" sizes="(max-width: 152px) 100vw, 152px" />](https://inigoacedo.com/wp-content/uploads/2017/04/ScreenHunter_1.jpg)
 
 Ya para terminar comentar que a aquellos amantes del cine de Tarantino no os resultará desconocida esta  opera prima de George Baker Selection “Little Green Bag”  ya que fue incluida en la banda sonora de la película “Reservoir Dogs”.
 

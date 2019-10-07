@@ -21,7 +21,7 @@ La historia de cómo llegué a este disco es curiosa. En una de mis lecturas sob
 
 Un par de años de búsqueda infructuosa después, me encontraba en Philadelphia rebuscando en diferentes tiendas cuando en el barrio Italiano de la ciudad y ya después de haber mirado medio almacén de la tienda le pregunto a la dueña si conocía el disco. Cuál fue mi sorpresa cuando me dijo que no solo lo conocía sino que creía que tenía una copia del disco (&#171;si claro seguro&#187; pensé yo) y entonces va y me saca una copia promocional (sí sí promocional, de esas copias que no salen a la venta y se envían a las radios para publicitar el disco). Se me saltaban las lágrimas, mi mujer me miraba con una sonrisa como de &#171;pues sí este es mi marido&#187;, hasta la dependienta se emocionó y dijo que de vez en cuando había alguien como yo que encontraba algo que llevaba mucho tiempo buscando y que esos momentos le encantaban. Siempre estaré agradecido a Molly por este hallazgo
 
-[<img class="alignnone size-full wp-image-69" src="https://inigoacedo.com/wp-content/uploads/2017/01/ScreenHunter_3.bmp" alt="" width="192" height="164" />](https://inigoacedo.com/wp-content/uploads/2017/01/ScreenHunter_3.bmp)
+[<img class="alignnone size-full wp-image-69" src="https://inigoacedo.com/wp-content/uploads/2017/01/ScreenHunter_3.jpg" alt="" width="192" height="164" />](https://inigoacedo.com/wp-content/uploads/2017/01/ScreenHunter_3.jpg)
 
 El grupo grabó un segundo álbum para Epic, posteriormente regrabándolo para Atlantic Records pero nunca fue editado y la banda se separó poco después.
 

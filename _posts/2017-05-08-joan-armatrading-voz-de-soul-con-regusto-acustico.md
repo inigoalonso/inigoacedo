@@ -7,7 +7,7 @@ excerpt: 'Joan Anita Barbara Armatrading, es una cantautora y guitarrista autodi
 layout: post
 guid: https://inigoacedo.com/?p=179
 permalink: /2017/05/08/joan-armatrading-voz-de-soul-con-regusto-acustico/
-image: /wp-content/uploads/2017/05/ScreenHunter_1-1.bmp
+image: /wp-content/uploads/2017/05/ScreenHunter_1-1.jpg
 categories:
   - Artículos
 ---

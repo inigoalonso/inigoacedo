@@ -35,7 +35,7 @@ Sus álbumes &#171;Cold Fact&#187; y &#171;Coming from Reality&#187; fueron reed
 
 La reedición de estos discos es fácil de conseguir hoy en día, yo las conseguí en mi tienda local habitual.
 
-[<img class="alignnone size-medium wp-image-112" src="https://inigoacedo.com/wp-content/uploads/2017/01/ScreenHunter_8-297x300.bmp" alt="" width="297" height="300" srcset="https://inigoacedo.com/wp-content/uploads/2017/01/ScreenHunter_8-297x300.bmp 297w, https://inigoacedo.com/wp-content/uploads/2017/01/ScreenHunter_8-100x100.bmp 100w, https://inigoacedo.com/wp-content/uploads/2017/01/ScreenHunter_8.bmp 428w" sizes="(max-width: 297px) 100vw, 297px" />](https://inigoacedo.com/wp-content/uploads/2017/01/ScreenHunter_8.bmp)
+[<img class="alignnone size-medium wp-image-112" src="https://inigoacedo.com/wp-content/uploads/2017/01/ScreenHunter_8-297x300.jpg" alt="" width="297" height="300" srcset="https://inigoacedo.com/wp-content/uploads/2017/01/ScreenHunter_8-297x300.jpg 297w, https://inigoacedo.com/wp-content/uploads/2017/01/ScreenHunter_8-100x100.jpg 100w, https://inigoacedo.com/wp-content/uploads/2017/01/ScreenHunter_8.jpg 428w" sizes="(max-width: 297px) 100vw, 297px" />](https://inigoacedo.com/wp-content/uploads/2017/01/ScreenHunter_8.jpg)
 
 En cambio las primeras ediciones del sello discográfico Sussex son harina de otro costal (muchas de estas copias que fueron pinchadas en Sudáfrica incluso tienen canciones rayadas debido a la censura de aquella época).
 
@@ -43,7 +43,7 @@ En cambio las primeras ediciones del sello discográfico Sussex son harina de ot
 
 En 2012 se estrenó un documental sobre el cantante, titulado &#171;Searching for Sugar Man&#187; (ganador de un Premio Óscar). Como curiosidad decir que la distribución del mismo corrió a cargo de Avalon, empresa en la cual trabaja mi querida madre.
 
-..[<img class="alignnone size-medium wp-image-94" src="https://inigoacedo.com/wp-content/uploads/2017/01/ScreenHunter_4-229x300.bmp" alt="" width="229" height="300" srcset="https://inigoacedo.com/wp-content/uploads/2017/01/ScreenHunter_4-229x300.bmp 229w, https://inigoacedo.com/wp-content/uploads/2017/01/ScreenHunter_4.bmp 302w" sizes="(max-width: 229px) 100vw, 229px" />](https://inigoacedo.com/wp-content/uploads/2017/01/ScreenHunter_4.bmp)
+..[<img class="alignnone size-medium wp-image-94" src="https://inigoacedo.com/wp-content/uploads/2017/01/ScreenHunter_4-229x300.jpg" alt="" width="229" height="300" srcset="https://inigoacedo.com/wp-content/uploads/2017/01/ScreenHunter_4-229x300.jpg 229w, https://inigoacedo.com/wp-content/uploads/2017/01/ScreenHunter_4.jpg 302w" sizes="(max-width: 229px) 100vw, 229px" />](https://inigoacedo.com/wp-content/uploads/2017/01/ScreenHunter_4.jpg)
 
 Altamente recomendable si se quiere profundizar en la historia de este artista incomprendido entre sus semejantes pero ensalzado por los que se sentían identificados con el mensaje de su música.
 

@@ -7,7 +7,7 @@ excerpt: 'La banda sonora de Pulp Fiction recopila canciones de géneros  como e
 layout: post
 guid: https://inigoacedo.com/?p=148
 permalink: /2017/04/02/pulp-fiction-soundtrack-la-pelicula-que-encajo-en-la-musica/
-image: /wp-content/uploads/2017/04/ScreenHunter_2.bmp
+image: /wp-content/uploads/2017/04/ScreenHunter_2.jpg
 categories:
   - Artículos
 ---
@@ -19,7 +19,7 @@ Me apetecía traeros hoy este disco por varios motivos. Dentro de mi afán colec
 
 Ya sean Soundtracks o Scores, en castellano no hacemos diferenciación entre una y otra (solo tenemos un vocablo para denominar la música de una película), Soundtrack se refiere a las canciones incluidas dentro de la banda sonora de una película y Score es la música ambiental generalmente instrumental (aunque también hay con letra) que acompaña a la acción que se está desarrollando en las imágenes (la clásica fanfarria que asusta en las películas de terror por ejemplo).
 
-<img class="alignnone size-medium wp-image-150" src="https://inigoacedo.com/wp-content/uploads/2017/04/ScreenHunter_3-207x300.bmp" alt="" width="207" height="300" srcset="https://inigoacedo.com/wp-content/uploads/2017/04/ScreenHunter_3-207x300.bmp 207w, https://inigoacedo.com/wp-content/uploads/2017/04/ScreenHunter_3.bmp 370w" sizes="(max-width: 207px) 100vw, 207px" /> 
+<img class="alignnone size-medium wp-image-150" src="https://inigoacedo.com/wp-content/uploads/2017/04/ScreenHunter_3-207x300.jpg" alt="" width="207" height="300" srcset="https://inigoacedo.com/wp-content/uploads/2017/04/ScreenHunter_3-207x300.jpg 207w, https://inigoacedo.com/wp-content/uploads/2017/04/ScreenHunter_3.jpg 370w" sizes="(max-width: 207px) 100vw, 207px" /> 
 
 Lo interesante de esta banda sonora es que fue seleccionada por Quentin Tarantino de entre su colección de discos antes incluso que el guión o las escenas para la pélicula (para aquellos que no lo supieseis Tarantino es un gran melómano y tiene una enorme colección de discos).
 

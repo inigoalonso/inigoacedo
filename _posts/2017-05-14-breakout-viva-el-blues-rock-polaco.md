@@ -7,7 +7,7 @@ excerpt: 'Breakout fue una banda polaca de Blues-Rock  cuyos orígenes se remont
 layout: post
 guid: https://inigoacedo.com/?p=184
 permalink: /2017/05/14/breakout-viva-el-blues-rock-polaco/
-image: /wp-content/uploads/2017/05/ScreenHunter_3.bmp
+image: /wp-content/uploads/2017/05/ScreenHunter_3.jpg
 categories:
   - Artículos
 ---
@@ -27,4 +27,4 @@ Estos discos son casi imposibles de encontrar fuera de Polonia pero en Poznan ha
 
 Durante una de mis múltiples visitas a esta ciudad pasé una tarde muy agradable charlando con el propietario de una de ellas. Además tuve la oportunidad de escuchar varios discos de Rock y de Jazz polacos que serán carne de futuras entradas…
 
-[<img class="alignnone size-full wp-image-185" src="https://inigoacedo.com/wp-content/uploads/2017/05/ScreenHunter_2-1.bmp" alt="" width="292" height="117" />](https://inigoacedo.com/wp-content/uploads/2017/05/ScreenHunter_2-1.bmp)
+[<img class="alignnone size-full wp-image-185" src="https://inigoacedo.com/wp-content/uploads/2017/05/ScreenHunter_2-1.jpg" alt="" width="292" height="117" />](https://inigoacedo.com/wp-content/uploads/2017/05/ScreenHunter_2-1.jpg)
