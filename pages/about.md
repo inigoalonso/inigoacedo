@@ -1,5 +1,5 @@
 ---
-layout: misc
+layout: page
 id: 27
 title: Acerca de Vinilo Locura y su Captura
 date: 2017-01-02T21:36:04+02:00
